@@ -55,5 +55,5 @@ We welcome contributions from the community to enhance and improve Spacepidia. I
 __Contact__
 
 
-For inquiries or feedback about Spacepidia, please contact Ahamad ALi at 2k22.cse.2213393@gmail.com
+For inquiries or feedback about Spacepidia, please contact Arjita Sahu at 2k22.cse.2213081@gmail.com
 
